@@ -1,11 +1,11 @@
-18 ⛧ Goth. C+H open to anyone
+Goth. C+H open to anyone
 
 usually in BSD areas, one piece/mha or caves (it's a pretty place..)
 
 
 I follow pretty much anyone I see with a skin I find pretty , block me if you don't want me though!!
 
-please do not flirt with me even for a joke, I'm happily taken irl #fuckoff
+please do not flirt with me even for a joke, I'm happily taken irl #fuckoff 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=vampiriakue&color=lightgrey" />
 </p>
