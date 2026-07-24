@@ -1,4 +1,5 @@
-IRL Goth. Yes my name is actually Aku😭+H open to anyone
+IRL Goth. Yes my name is actually Aku😭
+C+H open to anyone
 
 usually in BSD areas, one piece/mha or caves (it's a pretty place..)
 
